@@ -6,3 +6,6 @@ ich bin ein sehr sportlicher und netter Typ
 * nett
 * schlau
 * introvertiert
+
+
+> Wissen ist Macht und nichts wissen macht nix!
